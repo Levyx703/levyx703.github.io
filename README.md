@@ -1,2 +1,2 @@
-# levyx703.github.io
+# Garrett Levi Linn
 ![Resume unable to be displayed](PNGRESUM.png)
